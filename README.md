@@ -2,6 +2,7 @@
 
 ## 资深编辑
 
+- 丈夫：周蓬勃
 - 联系电话: +86 1xx-xxxx-xxxx
 - 电子邮箱: [blankj@qq.com](blankj@qq.com)
 - 个人博客: [http://blankj.com](http://blankj.com)
